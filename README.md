@@ -9,4 +9,4 @@ I block <ins>freely</ins> , **basic dni critetra, weird ppl, and ppl who I don't
 > 
 > I try to be as positive as I can with my messages for them to not look dry if we aren't friends, sorry if I seem rude
 >
-> 
+> light inspo only, do not copy my skins entirely
