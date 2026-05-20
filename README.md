@@ -1,6 +1,6 @@
 imprtnt stuff
 -
-w2i , c+h *encouraged if alone!*  ||  *semi - active on pt* , mostly offtab/busy/playing rblx if online
+w2i , c+h *encouraged if alone!*  ||  *semi - active on pt* , mostly offtab/busy/away/playing rblx if online
 
 I block <ins>freely</ins> , **basic dni critetra, weird ppl, and ppl who I don't like in general will be blocked**
 
